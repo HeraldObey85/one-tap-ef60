@@ -1,4 +1,4 @@
-#  
+#  one tap updated Script offers the most advanced one tap Script, with undetectable and auto-farm. Perfect for dominating any match.
 
 
 
